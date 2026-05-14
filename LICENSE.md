@@ -1,4 +1,4 @@
-#  
+#  Experience enter brainrot heads like never before with exclusive Scripts for enter brainrot heads, the #1 Script. Includes anti-ban and custom skins
 
 
 
